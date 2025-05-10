@@ -1,0 +1,3 @@
+- "The presidential election of 1800 was angry, dirty, crisis-ridden contest that seemed to threaten the nation's survival"
+- [[Federalist]] [[John Adams]]  versus [[Democratic]] [[Thomas Jefferson]]
+- Thanks to [[Alexander Hamilton]] [[Thomas Jefferson]] won the election of 1800

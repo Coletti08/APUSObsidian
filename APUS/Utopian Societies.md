@@ -1,0 +1,13 @@
+In the 1800s, several utopian communities emerged in upstate New York, most notably the ==Oneida Community==. Founded by John Humphrey Noyes in 1848, Oneida practiced complex marriage, communal ownership, and other unconventional practices. Other, smaller utopian communities also existed in the region, such as the [Skaneateles Community](https://www.google.com/search?client=opera-gx&cs=1&sca_esv=28365adf0b6f92db&sxsrf=AHTn8zoUSchNP7Fj-x8yjbRpcMv3VWBnIA%3A1745980357753&q=Skaneateles+Community&sa=X&ved=2ahUKEwiKxd7X2_6MAxVOFFkFHYthBqUQxccNegQICRAB&mstk=AUtExfC9GAaalvexZDNUMj8MceqoWG6txPqfJYc4HxLIw5iBueXOTKhWe2juQIfgQ73sje3iXSzasYMZiGvXuFA5bMlwTz1lJuY0BgvVadnUnIvmN0NcBgtil6vqCQKrlurK392c76v4sobb8zswmo6j5SCIfUZ-AHsCh3QUN9jkmMkoKA0&csui=3) and the [Sodus Bay Phalanx](https://www.google.com/search?client=opera-gx&cs=1&sca_esv=28365adf0b6f92db&sxsrf=AHTn8zoUSchNP7Fj-x8yjbRpcMv3VWBnIA%3A1745980357753&q=Sodus+Bay+Phalanx&sa=X&ved=2ahUKEwiKxd7X2_6MAxVOFFkFHYthBqUQxccNegQICRAC&mstk=AUtExfC9GAaalvexZDNUMj8MceqoWG6txPqfJYc4HxLIw5iBueXOTKhWe2juQIfgQ73sje3iXSzasYMZiGvXuFA5bMlwTz1lJuY0BgvVadnUnIvmN0NcBgtil6vqCQKrlurK392c76v4sobb8zswmo6j5SCIfUZ-AHsCh3QUN9jkmMkoKA0&csui=3), which were also based on freethought principles. 
+
+Oneida Community:
+
+- **Foundation:** Founded by John Humphrey Noyes in 1848. 
+- **Location:** Oneida, New York. 
+- **Key Beliefs:** Complex marriage (non-monogamous relationships), communal ownership of property, communal child-rearing, and male sexual continence. 
+- **Legacy:** The Oneida Community Mansion House is a National Historic Landmark. The community was known for its innovative practices and its lasting impact on social and economic thought. 
+
+Other Utopian Communities:
+
+- **[Skaneateles Community](https://www.google.com/search?client=opera-gx&cs=1&sca_esv=28365adf0b6f92db&sxsrf=AHTn8zoUSchNP7Fj-x8yjbRpcMv3VWBnIA%3A1745980357753&q=Skaneateles+Community&sa=X&ved=2ahUKEwiKxd7X2_6MAxVOFFkFHYthBqUQxccNegQILBAB&mstk=AUtExfC9GAaalvexZDNUMj8MceqoWG6txPqfJYc4HxLIw5iBueXOTKhWe2juQIfgQ73sje3iXSzasYMZiGvXuFA5bMlwTz1lJuY0BgvVadnUnIvmN0NcBgtil6vqCQKrlurK392c76v4sobb8zswmo6j5SCIfUZ-AHsCh3QUN9jkmMkoKA0&csui=3):** Founded in the 1840s and based on freethought principles.
+- **[Sodus Bay Phalanx](https://www.google.com/search?client=opera-gx&cs=1&sca_esv=28365adf0b6f92db&sxsrf=AHTn8zoUSchNP7Fj-x8yjbRpcMv3VWBnIA%3A1745980357753&q=Sodus+Bay+Phalanx&sa=X&ved=2ahUKEwiKxd7X2_6MAxVOFFkFHYthBqUQxccNegQILxAB&mstk=AUtExfC9GAaalvexZDNUMj8MceqoWG6txPqfJYc4HxLIw5iBueXOTKhWe2juQIfgQ73sje3iXSzasYMZiGvXuFA5bMlwTz1lJuY0BgvVadnUnIvmN0NcBgtil6vqCQKrlurK392c76v4sobb8zswmo6j5SCIfUZ-AHsCh3QUN9jkmMkoKA0&csui=3):** Also founded in the 1840s and based on freethought principles.

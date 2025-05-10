@@ -1,0 +1,1 @@
+- Later called the Tariff of Abominations, the Tariff of 1828 increased the tax on imported manufactured goods. The law economically benefitted the North—New England in particular favored high tariffs—and injured the South, which believed that the tariff was unconstitutional.

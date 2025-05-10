@@ -1,0 +1,2 @@
+
+- A 1909 strike of women shirtwaist makers, who began a successful labor strike in [[New York City]] with the support of the [[National Women's Trade Union League of America]] in 1912, the more radical Industrial Workers of the World (IWW or [[Wobblies]]) led the 1912 Lawrence "bread and roses" textile strike in Massachusetts. and the 1913 paterson silk strike in Jersey. 

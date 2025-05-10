@@ -1,0 +1,12 @@
+
+- unlike the [[Great Awakening]] the second great awakening looked to choice, rather then adhering to a strictly [[Puritans]] mindset. 
+- There is a direct correlation between the second great awakening and the "Ante Bellum" reform society:
+	- [[Temperance Movement]]
+	- [[Abolition Movement]]
+- The religious revival that sweated through the early republic from 1825 - 1835. 
+- Sparked by the construction of the [[Erie Canal]], and the [[Travel Revolution]], as well as the [[Transcendental]] Movement. 
+	- Sparked the creation of whole new religions as well as the revival of old ones:
+		- [[Mormonism]] (1820's)
+		- [[Shakers]] (1820's)
+- 
+- characterized by the large-scale camp meetings where thousands listened to enthusiastic preachers who tried to convert them to either Baptist or Methodist doctrines. 

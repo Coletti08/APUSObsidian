@@ -1,0 +1,6 @@
+- Built in 1817
+- Connected Albany to the great lakes. 
+- Transformed Albany from small subsistence farming community into a large city. 
+- took 50,000 people to construct. 
+- Spawned hundreds of similar smaller canals, roads and started the [[Travel Revolution]]. 
+- Directly caused the [[Second Great Awakening]], through the introduction of 

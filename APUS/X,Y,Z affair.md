@@ -1,0 +1,2 @@
+
+- Everyone wants to go to war with France, [[John Adams]] says no. Which was a very unpopular decision, but also the correct decision because  knew we didn't have enough resources to sustain a war with France. p

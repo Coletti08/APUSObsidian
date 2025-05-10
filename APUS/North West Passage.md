@@ -1,0 +1,4 @@
+- A water route to Asia that European mapmakers were convinced existed somewhere in North America. 
+- Was the primary reason for Portuguese, French, and English sailers in the early 1500s. 
+	- Searching for the North West Passage [[Christopher Columbus]] accidentally discovered the [[New World]]
+- This remained a hope until [[Lewis and Clark]] confirmed that there was no such North West Passage. 

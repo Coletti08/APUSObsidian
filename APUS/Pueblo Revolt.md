@@ -1,0 +1,3 @@
+
+- In present-day Mexico, the Pueblo peoples, lead by Pope, coordinated an uprising against the Spanish at dozens of settlements scattered across hundreds of American Indians destroyed buildings and churches and killed more then 400 spaniards. They burned Santa Fe and drove the Spanish back to El Paso. 
+- Was for the most part successful by Indigenous Americans to drive out European Settlers from their lands, the Spanish were back within twelve years. 

@@ -1,0 +1,2 @@
+
+- Presidential candidate was a [[Republican]], made the south very scared about if a republican candidate won the presidency which of course happened in 1860 when [[Abraham Lincoln]] wins the election. 

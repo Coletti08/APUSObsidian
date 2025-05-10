@@ -1,0 +1,2 @@
+- Ended the [[Mexican American War]].
+- Allowed the US to acquire: California, Nevada, Utah, New Mexico, and parts of Arizona, Colorado, Kansas, and Wyoming. *So kinda Important*
